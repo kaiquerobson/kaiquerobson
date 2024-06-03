@@ -1,5 +1,5 @@
-### Hi there 👋   mimi
-
+### BEM VINDO AO MEU PERFIL
+SOU BOM EM APRENDER COISAS RAPIDAS EM QUE EU GOSTE CLARO 
 <!--
 **kaiquerobson/kaiquerobson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
